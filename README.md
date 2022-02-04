@@ -1,4 +1,4 @@
-## For Support join here [MoviezOnlySupport](https://telegram.dog/moviezonlysupport)
+## For Support join here [MoviezOnlySupport](https://t.me/+SpLXm83LuOliMDRl)
 ## Working example group [Leech Here](https://telegram.dog/leechtorrentmoviesonly)
 
 # Telegram Torrent Leecher 🔥🤖
